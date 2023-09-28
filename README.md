@@ -13,4 +13,7 @@
   
 <h2> What Would Drake Say If.....He Wanted to play Fortnite?</h2>
 <p> Drake enters his mansion after a long day at the studio. He looks around as he turns on the light. While observing the beautiful house he just bought, Drake wonders, "How can something be so big, yet so empty?" Drake thinks for a moment, then says, "Just like my heart." He sighs as his voice echos throughout his house. A small tear rolls down his face as he walks into his den. He looks at his Xbox and then glances at his bed. He pauses at the Xbox. Drake wiggles and waggles his fingers while speaking to the emptiness. "I've been good this week, don't mind if I do!" He flicks the Xbox on while grabbing a controller and inserts Fortnite. As he watches the loading screen, his mind slowly flashes to his ex. He makes up his mind and gets up and turns off the Xbox. "There's no time for games," he thinks to himself. Drake reaches for his phone and pulls up his ex's contact. He lays stomach down on his bed while kicking his legs back and forth. He types "I miss you, please give me anther chance, I really did love you," but slowly deletes it and types "Hey" instead. He turns off his phone and listens to Taylor Swift for 4 more heartbroken hours before going to sleep.</p>
+
+<a href="https://www.youtube.com/watch?v=BNkB_jxv2h8">Click Here for a Drizzy Drake Suprise!</a>
+
 </html>
